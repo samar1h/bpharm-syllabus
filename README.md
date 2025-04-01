@@ -1,1 +1,0 @@
-# bpharm-syllabus
